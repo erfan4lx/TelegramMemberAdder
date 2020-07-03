@@ -1,6 +1,6 @@
 # Pro Version Of Telegram Member Adder Tool
 
-Contact with me to Get the Password of Zip file on :
+Contact with me to get the Password of Zip file on :
 
  Telegram : https://t.me/erfan4lx
  
