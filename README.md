@@ -6,16 +6,16 @@ Contact with me to get the Password of Zip file on :
  
  Email : erfan4lx@gmail.com
  
- # Our team shop : https://sellix.io/M4nifest0team
-
 ## Show on Youtube : https://youtu.be/bzWnaWq5C_Q
 
 
 ## • Our Channels : 
 
-🆔 Our Website : https://M4nifest0.com
+🆔My YouTube Channel : http://youtube.com/erfan4lx
 
-🆔 Our Telegram Channel : https://t.me/M4nifest0
+🆔My Telegram Channel : https://t.me/Erfan4lxTeam
+
+🆔My Instagram Page : https://www.instagram.com/_erfan4lx_/
 
 <p align="center">
   Follow Me On
